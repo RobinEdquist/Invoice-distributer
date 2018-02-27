@@ -1,0 +1,1 @@
+Delete this file and place attachments in this directory.
